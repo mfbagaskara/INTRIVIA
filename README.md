@@ -10,3 +10,6 @@ wowwwwww seru bangetttt yeahhhh
 
 ## Kesan Pesan Cluster 12 Sejauh Ini 
 Actually keren (no satir), kakak^2nya baik soo no complaints.
+
+## Harapan Kuliah 
+Bisa buat teman dan mendapat kerja setelah selesai kuliah.
